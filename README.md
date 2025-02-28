@@ -1,16 +1,22 @@
-## Hi there 👋
+hi hi !! 🌻
 
-<!--
-**aamerus/aamerus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i'm ivaan !! 
+i use he/him prns, and i love hetalia (obviously)
+
+i also like splatoon but im SO hyperfixated on hetalia rn it isnt even funny
+anyways, i am a massive rusame fan (wow who saw this one coming) and i am a fudanshi 🌾
+
+
+also i have autism, ADD, extreme social anxiety and dyslexia so pls be patient w/ me!!
+i am open to new friends but pls note im a little shy at first... 😓😓😓
+
+my discord is aamerus so. ya feel free to add me there!! im way more active there than on ponytown
+
+and yeah i mean. thats it rly! 
+my only dni is. probably mean people cus i weep. thanx :3...
+
+OK! baibai ty for reading my yap about myself
+
+![_com apple Pasteboard 5rUm2g](https://github.com/user-attachments/assets/9851cfb3-605e-498f-968b-77740212f792)
