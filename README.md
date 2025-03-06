@@ -2,7 +2,7 @@ hi hi !! 🌻
 
 
 
-i'm ivaan !! 
+i'm gil !! 
 i use he/him prns, and i love hetalia (obviously)
 
 i also like splatoon but im SO hyperfixated on hetalia rn it isnt even funny
