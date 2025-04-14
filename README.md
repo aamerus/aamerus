@@ -12,10 +12,10 @@ anyways, i am a massive rusame fan (wow who saw this one coming) and i am a fuda
 also i have autism, ADD, extreme social anxiety and dyslexia so pls be patient w/ me!!
 i am open to new friends but pls note im a little shy at first... 😓😓😓
 
-my discord is vodkatoinette so. ya feel free to add me there!! im way more active there than on ponytown
+my discord is aamerus so. ya feel free to add me there!! im way more active there than on ponytown or anything else..
 
 and yeah i mean. thats it rly! 
-my only dni is. probably mean people cus i weep. thanx :3...
+my only dni is. probably mean people cus i weep.,, and people who ship WEIRD STUFF.... ok thanx :3...
 
 OK! baibai ty for reading my yap about myself
 
