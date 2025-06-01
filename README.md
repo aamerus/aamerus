@@ -1,10 +1,10 @@
-hi hi !! 🌻🪵
+hi hi !! 🤍
 
-i'm sunday (pronounced the same as the day) !! 
-i use he/him prns, and i love hetalia (obviously)
+i'm sunday or erika !! 
+i use he/him prns, and i love hetalia very much.! (obviously)
 
 i also like splatoon but im SO hyperfixated on hetalia rn it isnt even funny
-anyways, i am a massive rusame fan (wow who saw this one coming) and i am a fudanshi 
+anyways, i am a massive rusame and liechtenstein fan (wow who saw this one coming) and i am a fudanshi 
 
 
 also i have autism, ADD, extreme social anxiety and dyslexia so pls be patient w/ me!!
