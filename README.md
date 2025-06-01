@@ -1,8 +1,6 @@
-hi hi !! 🌻🪵🌲
+hi hi !! 🌻🪵
 
-
-
-i'm ivaàn (pronounced ih-vahn) !! 
+i'm sunday (pronounced the same as the day) !! 
 i use he/him prns, and i love hetalia (obviously)
 
 i also like splatoon but im SO hyperfixated on hetalia rn it isnt even funny
@@ -12,7 +10,7 @@ anyways, i am a massive rusame fan (wow who saw this one coming) and i am a fuda
 also i have autism, ADD, extreme social anxiety and dyslexia so pls be patient w/ me!!
 i am open to new friends but pls note im a little shy at first... 😓😓😓
 
-my discord is aamerus so. ya feel free to add me there!! im way more active there than on ponytown or anything else..
+my discord is sebpainter so. ya feel free to add me there!! im way more active there than on ponytown or anything else..
 
 and yeah i mean. thats it rly! 
 my only dni is. probably mean people cus i weep.,, and people who ship WEIRD STUFF.... ok thanx :3...
