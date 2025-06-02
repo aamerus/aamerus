@@ -10,7 +10,7 @@ anyways, i am a massive rusame and liechtenstein fan (wow who saw this one comin
 also i have autism, ADD, extreme social anxiety and dyslexia so pls be patient w/ me!!
 i am open to new friends but pls note im a little shy at first... 😓😓😓
 
-my discord is sebpainter so. ya feel free to add me there!! im way more active there than on ponytown or anything else..
+my discord is erika.vogel so. ya feel free to add me there!! im way more active there than on ponytown or anything else..
 
 and yeah i mean. thats it rly! 
 my only dni is. probably mean people cus i weep.,, and people who ship WEIRD STUFF.... ok thanx :3...
