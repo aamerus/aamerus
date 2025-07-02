@@ -17,5 +17,4 @@ my only dni is. probably mean people cus i weep.,, and people who ship WEIRD STU
 
 OK! baibai ty for reading my yap about myself
 
-[[https://tenor.com/view/pressure-roblox-painter-z-779-gif-16060438773007758397
-]
+[!:3](https://tenor.com/view/pressure-roblox-painter-z-779-gif-16060438773007758397)
