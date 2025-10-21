@@ -13,5 +13,5 @@ and yeah i mean. thats it rly!
 sign the ata here ->
 https://ttakeachance.atabook.org
 
-![Alt Text]([https://tenor.com/cKaN7QF9Tgt.gif](https://github.com/user-attachments/assets/4b2f29f4-dcf6-4fe2-a69e-066fcac18e5f))
+![image](https://github.com/user-attachments/assets/4b2f29f4-dcf6-4fe2-a69e-066fcac18e5f)
 
