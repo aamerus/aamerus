@@ -8,3 +8,7 @@ feel free to add me on discord!! my tag is .meloghia, and i p much always accept
 
 and yeah i mean. thats it rly! 
 SEND ME GIMMICKS 👀 —> https://jjotakak.straw.page
+
+
+little art dump sorry idk where to put these 
+<img src="https://file.garden/ajWTbAblXyS7sNBQ/IMG_5990.jpeg">
